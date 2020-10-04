@@ -19,6 +19,8 @@ Files is in this software Folder:
 
 Price of Software -- 5000 inr (68$) Lifetime use
 
+Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
+
 =========================================================
 
 Features of Software : 👉 Add More then 10000+ Members in 1 Min 👉 No Daily Limit/ No Time Limit 👉 Only real and active members will export 👉 No need to change API id & Hash (Only two Api and Hash Required) 👉 Auto join group 👉 Add More Than 100+ Number 👉 Export Members from Private & Public Groups 👉 Add Members From Any Target Group 👉 No Need to login Next Time 👉 Adds through Id No. So no need of Username 👉 Login through 2 factor password. No need to lose account anymore
