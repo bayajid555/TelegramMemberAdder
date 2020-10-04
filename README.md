@@ -29,7 +29,7 @@ When you buy this software , then I will give you a complete tutorial videos in 
 ==================================================
 
 Features of Software :
-👉 Add More then 10000+ Members in 1 Min
+👉 Add More then 10000+ Members in 60 Seconds
 👉 No Daily Limit/ No Time Limit
 👉 Only real and active members will export
 👉 No need to change API id & Hash (Only two Api and Hash Required)
