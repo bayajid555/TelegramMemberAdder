@@ -9,6 +9,8 @@ Price of Software -- 5000 inr (68$)  Lifetime use
 
 Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
 
+==================================================
+
 Files is in this software Folder:
 👉🏻__pycache__
 👉🏻pytransform
@@ -21,6 +23,8 @@ Files is in this software Folder:
 👉🏻Members.CSV
 👉🏻ReadMe.txt
 👉🏻user_key.txt
+
+==================================================
 
 Features of Software :
 👉 Add More then 10000+ Members in 1 Min
@@ -35,13 +39,17 @@ Features of Software :
 👉 Adds through Id No. So no need of Username
 👉 Login through 2 factor password . No need  to lose account anymore
 
+==================================================
+
 ✅Member Adding Service  - Choose your target group you want me to add in your group.  💰Price ( $10 for 1k Real &amp; Active Members)
 
+==================================================
+
 ❌STRICKLY NO SAMPLE, NO ADD FIRST ❌
 ❌STRICKLY NO SAMPLE, NO ADD FIRST ❌
 ❌STRICKLY NO SAMPLE, NO ADD FIRST ❌
 
-MODE OF PAYMENT: BTC, USDT, Paytm UPI   ⁉️PAYMENT FIRST! too many scammers out there.
+MODE OF PAYMENT: BTC, USDT   ⁉️PAYMENT FIRST! too many scammers out there.
 🚫DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT .
 
 Here is my Social media account.   📲CONTACT ME ON TELEGRAM @WhitehatAdder ❤️
