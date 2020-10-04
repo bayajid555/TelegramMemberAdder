@@ -7,7 +7,7 @@
 
 Price of Software -- 5000 inr (68$)  Lifetime use
 
-======================================================================================================================
+=========================================================
 
 Features of Software :
 👉 Add More then 10000+ Members in 1 Min
@@ -22,12 +22,17 @@ Features of Software :
 👉 Adds through Id No. So no need of Username
 👉 Login through 2 factor password. No need to lose account anymore
 
-========================================================================================================================
+========================================================
 
 ✅Member Adding Service  - Choose your target group you want me to add in your group.  💰Price ($10 for 1k Real &amp; Active Members)
 
 MODE OF PAYMENT: BTC, USDT, Paytm UPI   ⁉️PAYMENT FIRST! too many scammers out there.  🚫DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT . Here is my Social media account.
 
-========================================================================================================================
+=========================================================
 
 📲CONTACT ME ON TELEGRAM @WhitehatAdder ❤️ 
+
+Contact us :-
+telegram.me/WhitehatTelegram
+facebook.com/WhiteHatChannel
+github.com/WhiteHatChannel
