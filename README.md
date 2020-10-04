@@ -33,6 +33,4 @@ MODE OF PAYMENT: BTC, USDT, Paytm UPI   ⁉️PAYMENT FIRST! too many scammers o
 📲CONTACT ME ON TELEGRAM @WhitehatAdder ❤️ 
 
 Contact us :-
-telegram.me/WhitehatTelegram
-facebook.com/WhiteHatChannel
-github.com/WhiteHatChannel
+https://www.telegram.me/WhitehatTelegram    https://www.facebook.com/WhiteHatChannel    https://www.github.com/WhiteHatChannel
