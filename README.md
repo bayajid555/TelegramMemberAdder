@@ -9,7 +9,7 @@ Price of Software -- 5000 inr (68$)  Lifetime use
 
 Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
 
-==================================================
+===================================================
 
 Files is in this software Folder:
 👉🏻__pycache__
