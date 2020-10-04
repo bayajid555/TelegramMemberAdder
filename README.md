@@ -24,6 +24,8 @@ Files is in this software Folder:
 👉🏻ReadMe.txt
 👉🏻user_key.txt
 
+When you buy this software , then I will give you a complete tutorial videos in which it tells you how to run it in your computer and how to use it step by step.
+
 ==================================================
 
 Features of Software :
