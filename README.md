@@ -11,6 +11,10 @@ Price of Software -- 5000 inr (68$)  Lifetime use
 
 Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
 
+Software Short Demo Video -- https://youtu.be/O5o7BsHq3m8
+
+How to Speed up this software and add more members in less time -- https://youtu.be/-CwqrdNoxq0
+
 ===================================================
 
 Files is in this software Folder:
