@@ -6,7 +6,7 @@
 🔥 Buy Now 👇🏻👇🏻👇🏻👇🏻
 🔥Telegram Members Adder Pro Software🔥 👈🏻👈🏻👈🏻
 
-<img src="/box.jpg">
+<img src="/Productbox.jpg">
 
 Price of Software -- 5000 inr (68$)  Lifetime use
 
