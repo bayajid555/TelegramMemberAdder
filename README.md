@@ -12,7 +12,7 @@ Price of Software -- 5000 inr (68$)  Lifetime use
 
 Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
 
-Software Tutoril Video -- https://youtu.be/gsl90g4PmD8
+Software Tutorial Video -- https://youtu.be/gsl90g4PmD8
 
 ===================================================
 
