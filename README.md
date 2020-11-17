@@ -1,7 +1,7 @@
 # Telegram Member Adder Software
 ⁉️Are you also searching for such software of Telegram which can transfer 10000 members to your group in 1 minute??
 
-🤝You are talking to right person, 101% Legit, No No No to SCAM. 💯💯💯
+🤝You are talking to right person, 101% Legit 💯💯💯
 
 🔥 Buy Now 👇🏻👇🏻👇🏻👇🏻
 🔥Telegram Members Adder Pro Software🔥 👈🏻👈🏻👈🏻
@@ -10,11 +10,11 @@
 
 Price of Software -- 5000 inr (68$)  Lifetime use
 
-Contact with me to get the Password of Zip file on : https://www.telegram.me/WhitehatTelegram
+Contact with me to get the Password of Zip file on : https://www.telegram.me/realarshmaan
 
-Software Tutorial Video -- https://youtu.be/gsl90g4PmD8
+Software Tutorial Video -- https://www.youtube.com/arshmaan
 
-Visit Our Website : https://www.TelegramScraper.Net
+Visit Our Website : https://www.arshmaan.com
 
 ===================================================
 
@@ -68,6 +68,5 @@ Features of Software :
 MODE OF PAYMENT: BTC, USDT   ⁉️PAYMENT FIRST! too many scammers out there.
 🚫DON'T SENT ANY PAYMENT unless you verified that I'm legit! CHECK ALL YOU WANT .
 
-Here is my Social media account.   📲CONTACT ME ON TELEGRAM @WhitehatAdder ❤️
+Here is my Social media account.   📲CONTACT ME ON TELEGRAM @arshmaanchannel ❤️
 
-Contact us :- https://www.telegram.me/WhitehatTelegram https://www.facebook.com/WhiteHatChannel https://www.github.com/WhiteHatChannel
